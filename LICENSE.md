@@ -1,4 +1,4 @@
-# 
+# Protect your team's passwords with Dashlane Business: Secure, encrypted storage and easy sharing for businesses.
 
 
 
